@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bilgi@enessari.com**
 
-- ⚡ Fun fact **Focus is saying no to 1000 good ideas.**
+- ⚡ **Focus is saying no to 1000 good ideas.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
